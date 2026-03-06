@@ -15,8 +15,7 @@ Reach me at: **gayadolliadarsh@gmail.com**
 
 ---
 ## 🌐 Socials
-[![Instagram]https://www.instagram.com/_krishna.____22?utm_source=qr&igsh=MTFzMGlpeHBqbzM4Ng==
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/adarsh-gayadolli-6a2584254/) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=twitter&logoColor=white)](https://x.com/gayadolli36792) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=youtube&logoColor=white)](https://www.youtube.com/@Adarsh-u8x6i)
+[![Instagram]https://www.instagram.com/_krishna.____22?utm_source=qr&igsh=MTFzMGlpeHBqbzM4Ng==[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/adarsh-gayadolli-6a2584254/) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=twitter&logoColor=white)](https://x.com/gayadolli36792) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=youtube&logoColor=white)](https://www.youtube.com/@Adarsh-u8x6i)
 
 
 
